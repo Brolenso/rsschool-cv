@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Brolenso.github.io/rsschool-cv/cv
